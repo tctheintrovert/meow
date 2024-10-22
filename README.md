@@ -12,5 +12,4 @@ if you like ratskewer please interact please please!,,!,,!,!,!! /nf
 
 put gimmicks on my strawpage if you want
 
-
-meow
+![](https://github.com/tctheintrovert/tctheintrovert/blob/main/IMG_5754.gif)
