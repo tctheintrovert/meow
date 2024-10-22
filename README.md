@@ -13,3 +13,4 @@ if you like ratskewer please interact please please!,,!,,!,!,!! /nf
 put gimmicks on my strawpage if you want
 
 ![](https://github.com/tctheintrovert/tctheintrovert/blob/main/IMG_5754.gif)
+![](https://github.com/tctheintrovert/tctheintrovert/blob/main/IMG_5755.gif)
