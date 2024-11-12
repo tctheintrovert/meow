@@ -16,3 +16,5 @@ put gimmicks on my strawpage if you want
 ![](https://github.com/tctheintrovert/tctheintrovert/blob/main/IMG_5755.gif)
 
 whenever im my jimmy (mouthwashing) skins i promise u i do not support him/agree with his actions i jus rlly wanted to test shading n stuff with him and i rly like the skin so ya h
+
+ur allowed to take inspiration frum my skins that is owesome ^^
